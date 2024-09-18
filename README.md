@@ -1,1 +1,1 @@
-Idea is a combination of knowledge - TPB, 2020
+Idea is a combination of knowledge - @phogbinh, 2020
